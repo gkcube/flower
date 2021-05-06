@@ -1,2 +1,2 @@
-Files Uploaded By GKCube
+Files Uploaded By GKCube.
 We host picture files here.
